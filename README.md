@@ -1,2 +1,2 @@
 # Zenith Corporation
-\👋🏾 Welcome to Zenith Corporation
+👋🏾 Welcome to Zenith Corporation
